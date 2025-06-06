@@ -1,10 +1,10 @@
 Spotify will now be coming to airlines near you!
 
-United airlines has announced that they will be teaming up with Spotify to add and install the application on thier back seat screen interfaces.
+United Airlines has announced that they will be teaming up with Spotify to add and install the application on thier back seat screen interfaces.
 
 the airline company announced that it’s bringing the streaming-audio service to the on-demand entertainment displays aboard 680-plus aircraft.
 
-this article was originally oun on PcMag.com but here are othe links to the same story
+this article was originally published on PcMag.com but here are other links to the same story.
 
 https://www.pcmag.com/news/now-boarding-on-united-airlines-spotify
 https://thepointsguy.com/news/united-airlines-spotify/
