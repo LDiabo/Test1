@@ -1,7 +1,7 @@
 # Hello There
 
 
-If you do not give us 1000lbs of chocolate, your teddy bear will be ***DETSROYED!!!!***
+iF yOu dO NOt GivE uS 1000lBs Of ChoCoLAtE, YoUr TeDdY BeaR WiLL Be ***DETSROYED!!!!***
 
 ## <ins>You have 48 Hours to deliver the goods!!!</ins>
 
