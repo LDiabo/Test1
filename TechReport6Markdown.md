@@ -5,6 +5,6 @@ Ontario initialy pulled the plug on Elon Musks Starlink project due to his ties 
 Ford was quoted saying “Yes, Starlink is done,”“Are we surprised that they’re not seeing eye-to-eye? I predicted that as soon as that marriage happened. I thought that there would be a divorce real quick.”
 
 
-## The Full Article can be found in the link below
+## The full article can be found in the link below
 
 https://www.pcmag.com/news/starlink-deal-in-canada-still-dead-despite-musks-breakup-with-trump
