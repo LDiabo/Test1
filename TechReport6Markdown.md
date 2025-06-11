@@ -1,4 +1,4 @@
-# Starlink dead in Canada depite his fued with Trump.
+# Starlink dead in Canada depite Elon Musk's fued with President Donald Trump.
 
 Ontario initialy pulled the plug on Elon Musks Starlink project due to his ties and suppoort of President Donald Trump, Ontario Premier Doug Ford has no plans to revive it following Musk and Trump's fallout.
 
