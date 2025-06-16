@@ -4,7 +4,7 @@ Line 6 has just released their new Guitar/Bass modeler. with the original Helix 
 
 The new Helix includes a high-resolution 8” touch screen, 12 high-contrast OLED scribble strips, and a built-in expression pedal with toe switch. It also has supports up to four effects loops, four external expression pedals, four external amp control outs, and four drum trigger inputs
 
-Line 6 is also rolling out an entirely new Agoura modeling methodology, which replaces the outgoing HX modeling for “extraordinary sound and responsiveness.” allowing the Helix to finally be ale to profile Amps, Cabs, and Pedals.
+Line 6 is also rolling out an entirely new Agoura modeling methodology, which replaces the outgoing HX modeling for “extraordinary sound and responsiveness.” allowing the Helix to finally be able to profile Amps, Cabs, and Pedals.
 
 ### You can find a links in relation to this article on Guitar.com and GuitarWorld.com 
 
