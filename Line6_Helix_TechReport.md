@@ -12,6 +12,6 @@ https://guitar.com/news/gear-news/line-6-helix-stadium/
 https://www.guitarworld.com/gear/amp-modeler-pedals/line-6-helix-stadium
 
 
-## Here is a short video presentation on the Line 6 Helix Stadium
+## Also, here is a short video presentation on the Line 6 Helix Stadium
 
 https://youtu.be/UmQ7ge-z6So?feature=shared
