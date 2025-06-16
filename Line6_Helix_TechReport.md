@@ -8,7 +8,7 @@ Line 6 is also rolling out an entirely new Agoura modeling methodology, which re
 
 ### You can find a links in relation to this article on Guitar.com and GuitarWorld.com 
 
-https://guitar.com/news/gear-news/line-6-helix-stadium/
+https://guitar.com/news/gear-news/line-6-helix-stadium/<br/>
 https://www.guitarworld.com/gear/amp-modeler-pedals/line-6-helix-stadium
 
 
