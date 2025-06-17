@@ -10,5 +10,5 @@ Of course you'll need a Prime Membership to take full advantage off all the deal
 
 ### more on this topic can be found in the links below
 
-https://www.pcmag.com/news/amazon-prime-day-2025-everything-you-need-to-know<br/>
-https://www.cnn.com/cnn-underscored/deals/amazon-prime-day-2025-06-17
+- https://www.pcmag.com/news/amazon-prime-day-2025-everything-you-need-to-know<br/>
+- https://www.cnn.com/cnn-underscored/deals/amazon-prime-day-2025-06-17
