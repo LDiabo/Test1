@@ -4,6 +4,9 @@ Amazon, the biggest online shooping outlet is having its annual Prime Day sales,
 
 This is the tenth year of Prime Day, and we'd expect Amazon to celebrate with special offers, time-limited discounts, and more. Last year's event saw the company sell over 200 million items! This year, for the first time, shoppers in Ireland and Colombia will be able to participate.
 
-more on this topic can be found in the link below
+Of course you'll need a Prime Membership to take full advantage off all the deals, but there will be discounts on certain products without a Prime Memberhsip.
+
+### more on this topic can be found in the links below
 
 https://www.pcmag.com/news/amazon-prime-day-2025-everything-you-need-to-know
+https://www.cnn.com/cnn-underscored/deals/amazon-prime-day-2025-06-17
